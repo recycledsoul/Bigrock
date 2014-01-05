@@ -1,0 +1,1 @@
+This is a basic layuout for the Bigrock website. It is full of mistakes in terms of content but that is only because all the pages were created in only two days as I was not aware of the rockstar of design event. But no sweat if I am disqualified. It was fun.
